@@ -1,6 +1,6 @@
 # soundwavewannabe.github.io
 > **Soundwave superior, Autobots inferior.**
-![tfp soundwave my love](https%3A%2F%2Fstatic.wikia.nocookie.net%2Ftransformers%2Fimages%2Fd%2Fda%2FProject_Predacon_screenshot_83.jpg)=width="400"
+![tfp soundwave my love](static.wikia.nocookie.net%2Ftransformers%2Fimages%2Fd%2Fda%2FProject_Predacon_screenshot_83.jpg)=width="400"
 
 
 
