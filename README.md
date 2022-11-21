@@ -10,9 +10,10 @@
 
 
 
-> My real name is Ma. Ani V. Jaucian a.k.a *Khoi* from Grade 9 Lewis
+> My real name is Ma. Ani V. Jaucian a.k.a *Khoi* from Grade 9 Lewis and some of the stuff I like are:
+
 
 **PS this isn't a roleplay account**, *I'm not that kinda person, I just really like Soundwave :3*
 
 
-"https://www.youtube.com/embed/BBJa32lCaaY"
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BBJa32lCaaY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
