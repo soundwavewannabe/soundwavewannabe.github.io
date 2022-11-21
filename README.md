@@ -1,5 +1,5 @@
 # soundwavewannabe.github.io
-> **Soundwave superior, Autobots inferior.**
+**Soundwave superior, Autobots inferior.**
 
 
 <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQxD1FKPizJeS8IHl5bV3HeZRz4SjssoOynag&usqp=CAU">
