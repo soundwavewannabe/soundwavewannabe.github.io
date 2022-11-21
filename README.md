@@ -2,7 +2,7 @@
 > **Soundwave superior, Autobots inferior.**
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQxD1FKPizJeS8IHl5bV3HeZRz4SjssoOynag&usqp=CAU">
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQxD1FKPizJeS8IHl5bV3HeZRz4SjssoOynag&usqp=CAU">"width=400"
 
 ---
 *Any racist, aniti-LGBTQIA+, anti-feminist or otherwise disciminatory people are **NOT** allowed here, this is a safespace for anyone to explore :D*
