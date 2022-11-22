@@ -11,9 +11,14 @@
 
 
 > My real name is Ma. Ani V. Jaucian a.k.a *Khoi* from Grade 9 Lewis and some of the stuff I like are:
+**Anime, some of my faves include**:
+- Vinland Saga
+- Death Note
+- Violet Evergarden
+- Little With Academia
+- Tokyo Revengers
 
-
-**PS this isn't a roleplay account**, *I'm not that kinda person, I just really like Soundwave :3*
+**PS this isn't a roleplay account**, I'm not that kinda person, I just really like Soundwave :3
 
 
 "https://www.youtube.com/embed/BBJa32lCaaY" 
