@@ -5,12 +5,12 @@
 <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQxD1FKPizJeS8IHl5bV3HeZRz4SjssoOynag&usqp=CAU" width=400>
 
 ---
-*Any racist, aniti-LGBTQIA+, anti-feminist or otherwise disciminatory people are **NOT** allowed here, this is a safespace for anyone to explore :D*
+*I go by strictly they/them pronouns & I'm ex-Catholic so plz respect that :)*
 
 
 
 
-> My real name is Ma. Ani V. Jaucian a.k.a Khoi from Grade 9 Lewis and some of the stuff I like are:
+> My real name is Ma. Ani V. Jaucian a.k.a Khoi from Grade 9 Lewis, and here's some stuff that you'd *perhaps* like to know about me:
 
 
 |**Anime, some of my faves include:**|
@@ -21,6 +21,7 @@
 | Tokyo Revengers| Neon Genesis Evangelion|
 |  Moriarty the Patriot| Higurashi When They Cry| 
 | Spy x Family| Jujutsu Kaisen|
+| Chainsaw Man| Attack on Titan|
 
 
 |**Manga, some of my faves include:**|
@@ -32,19 +33,17 @@
 
 
 **Transformers**
-*If you couldn't tell, my favorite Transformer in the entire series is Soundwave, I wanna be him so bad...he's so cool. ALL HAIL SOUNDWAVE THE CHEIF COMMUNICATIONS OFFICER OF THE DECEPTICONS **RAHHHHHHHH** *
+|------------------------------------|
+If you couldn't tell, my favorite Transformer in the entire series is Soundwave, I wanna be him so bad...he's so cool. ALL HAIL SOUNDWAVE THE CHEIF COMMUNICATIONS OFFICER OF THE DECEPTICONS **RAHHHHHHHH** 
 
 
-**Anything potato, and I mean a n y t h i n g.**
-
-
-|**Some other stuff I'm into include:**|
+|**Some other stuff I'm into are:**|
 |------------------------------------|
 | Five Nights At Freddy's| Bendy and the Ink Machine|
 | Yandere Simulator| Little Nightmares|
 | Creepypasta| SCP| 
 | Minecraft| Elden Ring|
-| Genshin Impact| Bloodborne|
+| Genshin Impact| Don't Hug Me. I'm Scared|
 | Doki Doki Literature Club| The Mandela Catalouge|
 | Drawing| Animation|
 | Spirituality| Studio Ghibli Films (Princess Mononoke, The Tale of Princess Kaguya, and Spirited Away are my fav films)|
@@ -63,6 +62,23 @@
 | IVE| Lady Gaga|
 
 
+|**My favorite YouTubers are:**|
+|------------------------------------|
+|[Kubz Scouts](https://www.youtube.com/c/thekubzscouts)| [CoreyxKenshin](https://www.youtube.com/@CoryxKenshin)|
+| [hochelaga](https://www.youtube.com/@hochelaga)| [OverSimplified](https://www.youtube.com/c/OverSimplified)|
+| [Overly Sarcastic Productions](https://www.youtube.com/@OverlySarcasticProductions)| [The Game Theorists](https://www.youtube.com/@GameTheory)|
+| [The Film Theorists](https://www.youtube.com/@FilmTheory)| [Nerd Explains](https://www.youtube.com/@NerdExplains)|
+| [Dead Meat](https://www.youtube.com/@DeadMeat)| [Jaiden Animations](https://www.youtube.com/@jaidenanimations)|
+| [daiz](https://www.youtube.com/@daisychoiii)| [saranghoe](https://www.youtube.com/@tracysohn)|
+| [Alex Bondoc](https://www.youtube.com/@alexbondoc)| [annika's leaf](https://www.youtube.com/@annikasleaf)|
+| [em iffy](https://www.youtube.com/@emiffy646)| [NIKO LIFE](https://www.youtube.com/@nikolifework)|
+| [みゅうmyuuu](https://www.youtube.com/@myuuu333)| [에이스ACE](https://www.youtube.com/@aceparkxx)|
+| [deemd 딤디](https://www.youtube.com/@deemd)| [Hazi](https://www.youtube.com/@hazi.original)|
+| [Usako style](https://www.youtube.com/@usakostyle)| [Bluebiscuits](https://www.youtube.com/@bluebiscuits)|
+| [Kooleen](https://www.youtube.com/@Kooleen)| [Watcher](https://www.youtube.com/@watcher)|
+| [Bedtime Stories](https://www.youtube.com/@BedtimeStoriesChannel)| [Wendigoon](https://www.youtube.com/@Wendigoon)|
+
+
 |**Some of characters I kin are:**|
 |------------------------------------|
 | Shinobu Kocho from Demon Slayer (Kimetsu no Yaiba)
@@ -77,13 +93,17 @@
 <img src="https://user-images.githubusercontent.com/118234146/203559084-6b6f1ac7-14ec-437e-92b9-2a03729aa5b0.jpeg" width=200>|
 |Nanami Kento fro Jujutsu Kaisen
 <img src="https://user-images.githubusercontent.com/118234146/203561845-d97cba88-a8f0-4fb9-b9d7-a2dee7a70cfe.jpeg" width=200>|
+| Armin Arlert from Attack on Titan (Shingeki no Kyojin)
+<img src="https://user-images.githubusercontent.com/118234146/203589508-3f1c1fd7-8728-47ad-a746-ac241f94d22d.jpeg" width=200>|
 
 
 **Now its time for me to dump a bunch of my favorite songs on this here webpage of mine :3**
 
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/4MTgIH5OZQHAbdBWgbKSAb?utm_source=generator" width="100" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/4MTgIH5OZQHAbdBWgbKSAb?utm_source=generator" width="100%"  frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/5ka2ajep9OAvU5Sgduhiex?utm_source=generator" width="100%"  frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/1HHeOs6zRdF8Ck58easiAY?utm_source=generator" width="100%"  frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/1u8c2t2Cy7UBoG4ArRcF5g?utm_source=generator" width="100%"  frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
@@ -154,8 +174,6 @@
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/463r5bsN1VqGXtaMctn4Rr?utm_source=generator" width="100%" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/7w2Yi23QmQdiAsix3NkuBD?utm_source=generator" width="100%" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
-
-
 
 
 
