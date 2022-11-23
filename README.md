@@ -46,7 +46,7 @@
 | Genshin Impact| Bloodborne|
 | Doki Doki Literature Club| The Mandela Catalouge|
 | Drawing| Animation|
-| Spirituality| Studio Ghibli Films (Princess Mononoke, The Tale of Princess Kaguya, and Spirited Awayare my fav films)|
+| Spirituality| Studio Ghibli Films (Princess Mononoke, The Tale of Princess Kaguya, and Spirited Away are my fav films)|
 
 
 |**My favorite artists are:**|
