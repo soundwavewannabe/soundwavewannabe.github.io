@@ -61,9 +61,9 @@
 
 
 |**The characters I kin are:**|
-| Shinobu Kocho from Demon Slayer (Kimetsu no Yaiba) <img src="https://i.pinimg.com/originals/f3/8a/c3/f38ac38f8c3cf1918569e065dd026239.jpg" width=200>|
-| Shinji Ikari from Neon Genesis Evangelion <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTu1rPf4xIpX9qYoOYnYJ3DJJzjRa6AHcfbXg&usqp=CAU" width=200>|
-| Kurapika from Hunter x Hunter <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR4GjbKLGTItyh6cTzlKZUe0siV4yGsMgkPHA&usqp=CAU" width=200>|
+| Shinobu Kocho from Demon Slayer (Kimetsu no Yaiba): <img src="https://i.pinimg.com/originals/f3/8a/c3/f38ac38f8c3cf1918569e065dd026239.jpg" width=200>|
+| Shinji Ikari from Neon Genesis Evangelion: <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTu1rPf4xIpX9qYoOYnYJ3DJJzjRa6AHcfbXg&usqp=CAU" width=200>|
+| Kurapika from Hunter x Hunter: <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR4GjbKLGTItyh6cTzlKZUe0siV4yGsMgkPHA&usqp=CAU" width=200>|
 | Kenma Kozume from Haikyu!! <img src=" 
 
 
