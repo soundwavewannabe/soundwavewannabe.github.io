@@ -186,10 +186,10 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 
 **Before you go, heres some memes that I feel represent me in ways that words cant or whatever, I cant think of anything creative to say here lmao**
 
-<img src="https://assets.pinterest.com/ext/embed.html?id=536702480605996111" height="308" width="345" frameborder="0">
+<iframe src="https://assets.pinterest.com/ext/embed.html?id=536702480605996111" height="308" width="345" frameborder="0" scrolling="no"></iframe>
 
-<img src="https://assets.pinterest.com/ext/embed.html?id=536702480605996120" height="273" width="345" frameborder="0">
+<iframe src="https://assets.pinterest.com/ext/embed.html?id=536702480605996120" height="273" width="345" frameborder="0" scrolling "no"></iframe>
 
-
+<iframe src="https://assets.pinterest.com/ext/embed.html?id=536702480605995839" height="267" width="345" frameborder="0" scrolling="no" ></iframe>
 
 "https://www.youtube.com/embed/BBJa32lCaaY" 
