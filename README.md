@@ -2,7 +2,7 @@
 ## **Soundwave superior, Autobots inferior.**
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQxD1FKPizJeS8IHl5bV3HeZRz4SjssoOynag&usqp=CAU" width=400>
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQxD1FKPizJeS8IHl5bV3HeZRz4SjssoOynag&usqp=CAU" width=500>
 
 ---
 *I go by strictly they/them pronouns & I'm ex-Catholic so plz respect that :)*
@@ -10,7 +10,9 @@
 
 
 
-> *insert creative greeting*, my real name is Ma. Ani V. Jaucian from 9 Lewis, but just call me Khoi. I'm 15 and my birthday is on September 21st, I'm a Virgo Sun, Pisces Rising and Capricorn Moon. I'll say this now, I'm generfluid/transgender and have been for some time, so plz respect that and respect others who idenify as the same as well :)). Wanna know more about me? Just check out all the stuff I've put in this ye webpage!!
+> *insert creative greeting*, my real name is [REDACTED] from Grade 9 Lewis, but just call me Khoi. I'm 15 and my birthday is on September 21st, I'm a Virgo Sun, Pisces Rising and Capricorn Moon. I'll say this now, I'm generfluid and have been for some time, so plz respect that and respect others who idenify as the same as well :)). Wanna know more about me? Just check out all the stuff I've put in this ye webpage!!
+
+
 
 
 
@@ -23,6 +25,9 @@
 |  Moriarty the Patriot| Higurashi When They Cry| 
 | Spy x Family| Jujutsu Kaisen|
 | Chainsaw Man| Attack on Titan|
+| Wonder Egg Priority| Danganronpa|
+
+
 
 
 
@@ -35,9 +40,13 @@
 
 
 
+
+
 **Transformers**
 
 If you couldn't tell, my favorite Transformer in the entire series is Soundwave, I wanna be him so bad...he's so cool. ALL HAIL SOUNDWAVE THE CHEIF COMMUNICATIONS OFFICER OF THE DECEPTICONS **RAHHHHHHHH** 
+
+
 
 
 
@@ -49,8 +58,17 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 | Minecraft| Elden Ring|
 | Genshin Impact| Don't Hug Me. I'm Scared|
 | Doki Doki Literature Club| The Mandela Catalouge|
+| Junji Ito| Mythology|
 | Drawing| Animation|
 | Spirituality| Studio Ghibli Films (Princess Mononoke, The Tale of Princess Kaguya, and Spirited Away are my fav films)|
+| The Amazing World Of Gumball| Gravity Falls|
+| Adventure Time| Teen Titans Go! & Teen Titans|
+| Arcane| Undertale|
+| Alice in Borderland (the live action adaptation)| Kingdom (the horror kdrama)|
+| Madds Mikkelsen| Nijiro Murakami|
+| Kento Yamazaki| 
+
+
 
 
 
@@ -59,12 +77,15 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 | TWICE|  BLACKPINK|
 | New Jeans| Le SSerafim|
 | STAYC| ITZY| 
+| NMIXX| Billie|
 | (G)-IDLE| Ado|
 | TUYU| Mitski|
 | Taylor Swift| Melanie Martinez|
 | Lamp| Kikuo|
 | Ariana Grande| Red Velvet|
 | IVE| Lady Gaga|
+
+
 
 
 
@@ -86,22 +107,42 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 
 
 
+
+
 |**Some of characters I kin are:**|
 |------------------------------------|
 | Shinobu Kocho from Demon Slayer (Kimetsu no Yaiba)
-<img src="https://i.pinimg.com/originals/f3/8a/c3/f38ac38f8c3cf1918569e065dd026239.jpg" width=200>|
+<img src="https://i.pinimg.com/originals/f3/8a/c3/f38ac38f8c3cf1918569e065dd026239.jpg" width=300>|
+| Muichiro Tokito from Demon Slayer (Kimetsu no Yaiba)
+<img src= "https://www.google.com.ph/url?sa=i&url=https%3A%2F%2Fkimetsu-no-yaiba.fandom.com%2Ff%2Fp%2F4400000000000052419&psig=AOvVaw06Zt0-Cni0Zjn-UK_0w7vW&ust=1669377975424000&source=images&cd=vfe&ved=0CA0QjRxqFwoTCJDc6e3jxvsCFQAAAAAdAAAAABAR" width=300>|
 | Shinji Ikari from Neon Genesis Evangelion
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTu1rPf4xIpX9qYoOYnYJ3DJJzjRa6AHcfbXg&usqp=CAU" width=200>|
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTu1rPf4xIpX9qYoOYnYJ3DJJzjRa6AHcfbXg&usqp=CAU" width=300>|
 | Kurapika from Hunter x Hunter
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR4GjbKLGTItyh6cTzlKZUe0siV4yGsMgkPHA&usqp=CAU" width=200>|
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR4GjbKLGTItyh6cTzlKZUe0siV4yGsMgkPHA&usqp=CAU" width=300>|
 | Kenma Kozume from Haikyu!! 
-<img src="https://user-images.githubusercontent.com/118234146/203496029-b9e14e71-4a76-4d6f-9c06-aa32c5d1b0ac.jpeg" width=200>|
+<img src="https://user-images.githubusercontent.com/118234146/203496029-b9e14e71-4a76-4d6f-9c06-aa32c5d1b0ac.jpeg" width=300>|
 | Askeladd from Vinland Saga
-<img src="https://user-images.githubusercontent.com/118234146/203559084-6b6f1ac7-14ec-437e-92b9-2a03729aa5b0.jpeg" width=200>|
+<img src="https://user-images.githubusercontent.com/118234146/203559084-6b6f1ac7-14ec-437e-92b9-2a03729aa5b0.jpeg" width=300>|
+| Canute from Vinland Saga
+<img src="https://user-images.githubusercontent.com/118234146/203780377-574321ba-266d-4da9-8147-a0171c866e33.jpeg" width=300>|
 |Nanami Kento fro Jujutsu Kaisen
-<img src="https://user-images.githubusercontent.com/118234146/203561845-d97cba88-a8f0-4fb9-b9d7-a2dee7a70cfe.jpeg" width=200>|
+<img src="https://user-images.githubusercontent.com/118234146/203561845-d97cba88-a8f0-4fb9-b9d7-a2dee7a70cfe.jpeg" width=300>|
 | Armin Arlert from Attack on Titan (Shingeki no Kyojin)
-<img src="https://user-images.githubusercontent.com/118234146/203589508-3f1c1fd7-8728-47ad-a746-ac241f94d22d.jpeg" width=200>|
+<img src="https://user-images.githubusercontent.com/118234146/203589508-3f1c1fd7-8728-47ad-a746-ac241f94d22d.jpeg" width=300>|
+| Anais Watterson from The Amazing World Of Gumball
+<img src="https://user-images.githubusercontent.com/118234146/203775013-4a2dc877-7781-4282-880a-a5ef6f2314da.jpeg" width=300>|
+| Momoe Sawaki from Wonder Egg Priority
+<img src="https://user-images.githubusercontent.com/118234146/203775627-f0fd0991-d57f-4dff-ad27-2a7b0eaeea75.jpeg" width=300>|
+|Ai Ohto from Wonder Egg Priority
+<img src="https://user-images.githubusercontent.com/118234146/203778408-d449dd10-4be0-40f1-8f4f-b9c7bdc596fa.jpeg" width=300>|
+| Raven from Teen Titans Go!
+<img src="https://user-images.githubusercontent.com/118234146/203779435-348909f0-32a8-4353-97b5-eef9c3c3bb20.jpeg" width=300>|
+| Ryohei Arisu from Alice in Borderland
+<img src="https://user-images.githubusercontent.com/118234146/203783183-8c533021-e688-4972-83ac-b82626896cd2.jpeg" width=300>|
+| Shuntaro Chishiya from Alice in Borderland
+<img src="https://user-images.githubusercontent.com/118234146/203785414-72472845-d82d-4b6f-b025-8dadf7188ef9.jpeg" width=300>|
+
+
 
 
 
@@ -192,5 +233,24 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 
 <iframe src="https://assets.pinterest.com/ext/embed.html?id=536702480605988286" height="273" width="345" frameborder="0" scrolling="no" ></iframe>
 
+<iframe src="https://assets.pinterest.com/ext/embed.html?id=536702480605996120" height="273" width="345" frameborder="0" scrolling="no" ></iframe>
 
-"https://www.youtube.com/embed/BBJa32lCaaY" 
+<iframe src="https://assets.pinterest.com/ext/embed.html?id=536702480605996121" height="316" width="345" frameborder="0" scrolling="no" ></iframe>
+
+<iframe src="https://assets.pinterest.com/ext/embed.html?id=536702480605991204" height="334" width="345" frameborder="0" scrolling="no" ></iframe>
+
+<iframe src="https://assets.pinterest.com/ext/embed.html?id=351912459309124" height="200" width="345" frameborder="0" scrolling="no" ></iframe>
+
+<iframe src="https://assets.pinterest.com/ext/embed.html?id=536702480605957154" height="560" width="345" frameborder="0" scrolling="no" ></iframe>
+
+<iframe src="https://assets.pinterest.com/ext/embed.html?id=536702480605920135" height="574" width="345" frameborder="0" scrolling="no" ></iframe>
+
+<iframe src="https://assets.pinterest.com/ext/embed.html?id=536702480605810518" height="350" width="345" frameborder="0" scrolling="no" ></iframe>
+
+<iframe src="https://assets.pinterest.com/ext/embed.html?id=536702480605663120" height="293" width="345" frameborder="0" scrolling="no" ></iframe>
+
+<iframe src="https://assets.pinterest.com/ext/embed.html?id=536702480605647254" height="295" width="345" frameborder="0" scrolling="no" ></iframe>
+
+
+
+[A little somethin before ya go 😏](<iframe width="560" height="315" src="https://www.youtube.com/embed/BBJa32lCaaY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>)
