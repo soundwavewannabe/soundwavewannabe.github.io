@@ -105,7 +105,8 @@ But I also like Starscream, Schockwave, Megatron, Knockout, Blitzwig, Ratchet, B
 | [Usako style](https://www.youtube.com/@usakostyle)| [Bluebiscuits](https://www.youtube.com/@bluebiscuits)|
 | [Kooleen](https://www.youtube.com/@Kooleen)| [Watcher](https://www.youtube.com/@watcher)|
 | [Bedtime Stories](https://www.youtube.com/@BedtimeStoriesChannel)| [Wendigoon](https://www.youtube.com/@Wendigoon)|
-
+| [Extra Credits](https://www.youtube.com/@ExtraCredits)| [Don't Hug Me. I'm Scared](https://www.youtube.com/@donthugmeimscared)|
+| [SmoughTown](https://www.youtube.com/@SmoughTown)| [Jake Doubleyoo](https://www.youtube.com/@JakeDoubleyoo)|
 
 
 
