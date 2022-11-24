@@ -10,8 +10,7 @@
 
 
 
-> My real name is Ma. Ani V. Jaucian a.k.a Khoi from Grade 9 Lewis, and here's some stuff that you'd *perhaps* like to know about me:
-
+> Greetings to whoever may be reading this, 
 
 |**Anime, some of my faves include:**|
 |-----------------------------------|
@@ -159,7 +158,7 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/5uFqjHOo3Sh0bVPCKf3DdH?utm_source=generator" width="100%" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/3dPtXHP0oXQ4HCWHsOA9js?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/3dPtXHP0oXQ4HCWHsOA9js?utm_source=generator" width="100%" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/3XCveEutwTaDiekRkkfdp9?utm_source=generator" width="100%" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
@@ -176,5 +175,10 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/7w2Yi23QmQdiAsix3NkuBD?utm_source=generator" width="100%" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 
+**Before you go, heres some memes that I feel represent me in ways that words cant or whatever, I cant think of anything creative to say here lmao**
+
+<img src="https://assets.pinterest.com/ext/embed.html?id=536702480605996111" height="308" width="345" frameborder="0" scrolling="no" ></iframe>
+
+<img src="https://assets.pinterest.com/ext/embed.html?id=536702480605996120" height="273" width="345" frameborder="0" scrolling="no" ></iframe>
 
 "https://www.youtube.com/embed/BBJa32lCaaY" 
