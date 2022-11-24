@@ -10,13 +10,13 @@
 
 
 
-> *-insert creative greeting-*, my real name is [REDACTED] from Grade 9 Lewis, but just call me Khoi. I'm 15 and my birthday is on September 21st, I'm a Virgo Sun, Pisces Rising and Capricorn Moon. I'll say this now, I'm generfluid and have been for some time, so plz respect that and respect others who idenify as the same as well :)). Wanna know more about me? Just check out all the stuff I've put in this ye webpage!!
+> *-insert creative greeting-*, my real name is [REDACTED] from Grade 9 Lewis, but just call me Khoi. I'm 15 and my birthday is on September 21st, I'm a ♍Virgo Sun, ♓Pisces Rising and ♑Capricorn Moon. I'll say this now, I'm generfluid🏳️‍⚧️ and have been for some time, so plz respect that and respect others who idenify as the same as well :)). Wanna know more about me? Just check out all the stuff I've put in this ye webpage!!
 
 
 
 
 
-|**Anime, some of my faves include:**|
+|**Some of my fave animes are:**|
 |-----------------------------------|
 | Vinland Saga| Death Note |
 | Death Note| Violet Evergarden |                       
@@ -31,7 +31,7 @@
 
 
 
-|**Manga, some of my faves include:**|
+|**Some mangas that I like to read are:**|
 |------------------------------------|
 | Oyasumi Punpun| Pumpkin Night|
 | Gyo|Uzumaki|
@@ -42,15 +42,16 @@
 
 
 
-**Transformers**
+**Transformers:**
 
-If you couldn't tell, my favorite Transformer in the entire series is Soundwave, I wanna be him so bad...he's so cool. ALL HAIL SOUNDWAVE THE CHEIF COMMUNICATIONS OFFICER OF THE DECEPTICONS **RAHHHHHHHH** 
-
-
-
+If you couldn't tell, my favorite Transformer in the entire series is Soundwave, I wanna be him so bad...he's so cool. ALL HAIL SOUNDWAVE THE CHEIF COMMUNICATIONS OFFICER OF THE DECEPTICONS **RAHHHHHHHH**
+But I also like Starscream, Schockwave, Megatron, Knockout, Blitzwig, Ratchet, Bumblebee & Optimus Prime 😃
 
 
-|**Some other stuff I'm into are:**|
+
+
+
+|**Some other stuff I'm into include:**|
 |------------------------------------|
 | Five Nights At Freddy's| Bendy and the Ink Machine|
 | Yandere Simulator| Little Nightmares|
@@ -141,7 +142,7 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 <img src="https://user-images.githubusercontent.com/118234146/203783183-8c533021-e688-4972-83ac-b82626896cd2.jpeg" width=300>|
 | Shuntaro Chishiya from Alice in Borderland
 <img src="https://user-images.githubusercontent.com/118234146/203785414-72472845-d82d-4b6f-b025-8dadf7188ef9.jpeg" width=300>|
-
+|*Don't question me why I relate to em, iykyk 👀*|
 
 
 
@@ -267,4 +268,4 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 
 
 
-[A little somethin before ya go 😏](https://www.youtube.com/embed/BBJa32lCaaY)
+[A lil somethin before ya leave 😏](https://www.youtube.com/embed/BBJa32lCaaY)
