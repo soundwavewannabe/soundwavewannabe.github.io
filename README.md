@@ -13,6 +13,7 @@
 > *insert creative greeting*, my real name is Ma. Ani V. Jaucian from 9 Lewis, but just call me Khoi. I'm 15 and my birthday is on September 21st, I'm a Virgo Sun, Pisces Rising and Capricorn Moon. I'll say this now, I'm generfluid/transgender and have been for some time, so plz respect that and respect others who idenify as the same as well :)). Wanna know more about me? Just check out all the stuff I've put in this ye webpage!!
 
 
+
 |**Anime, some of my faves include:**|
 |-----------------------------------|
 | Vinland Saga| Death Note |
@@ -24,6 +25,7 @@
 | Chainsaw Man| Attack on Titan|
 
 
+
 |**Manga, some of my faves include:**|
 |------------------------------------|
 | Oyasumi Punpun| Pumpkin Night|
@@ -32,9 +34,11 @@
 | Blood on the Tracks| Brutal: Satsujin Kansatukan no Kohaku|
 
 
+
 **Transformers**
-|------------------------------------|
+
 If you couldn't tell, my favorite Transformer in the entire series is Soundwave, I wanna be him so bad...he's so cool. ALL HAIL SOUNDWAVE THE CHEIF COMMUNICATIONS OFFICER OF THE DECEPTICONS **RAHHHHHHHH** 
+
 
 
 |**Some other stuff I'm into are:**|
@@ -49,6 +53,7 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 | Spirituality| Studio Ghibli Films (Princess Mononoke, The Tale of Princess Kaguya, and Spirited Away are my fav films)|
 
 
+
 |**My favorite artists are:**|
 |------------------------------------|
 | TWICE|  BLACKPINK|
@@ -60,6 +65,7 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 | Lamp| Kikuo|
 | Ariana Grande| Red Velvet|
 | IVE| Lady Gaga|
+
 
 
 |**My favorite YouTubers are:**|
@@ -79,6 +85,7 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 | [Bedtime Stories](https://www.youtube.com/@BedtimeStoriesChannel)| [Wendigoon](https://www.youtube.com/@Wendigoon)|
 
 
+
 |**Some of characters I kin are:**|
 |------------------------------------|
 | Shinobu Kocho from Demon Slayer (Kimetsu no Yaiba)
@@ -95,6 +102,7 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 <img src="https://user-images.githubusercontent.com/118234146/203561845-d97cba88-a8f0-4fb9-b9d7-a2dee7a70cfe.jpeg" width=200>|
 | Armin Arlert from Attack on Titan (Shingeki no Kyojin)
 <img src="https://user-images.githubusercontent.com/118234146/203589508-3f1c1fd7-8728-47ad-a746-ac241f94d22d.jpeg" width=200>|
+
 
 
 **Now its time for me to dump a bunch of my favorite songs on this here webpage of mine :3**
@@ -178,8 +186,10 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 
 **Before you go, heres some memes that I feel represent me in ways that words cant or whatever, I cant think of anything creative to say here lmao**
 
-<img src="https://assets.pinterest.com/ext/embed.html?id=536702480605996111" height="308" width="345" frameborder="0" scrolling="no" ></iframe>
+<img src="https://assets.pinterest.com/ext/embed.html?id=536702480605996111" height="308" width="345" frameborder="0" scrolling="no">
 
-<img src="https://assets.pinterest.com/ext/embed.html?id=536702480605996120" height="273" width="345" frameborder="0" scrolling="no" ></iframe>
+<img src="https://assets.pinterest.com/ext/embed.html?id=536702480605996120" height="273" width="345" frameborder="0" scrolling="no">
+
+
 
 "https://www.youtube.com/embed/BBJa32lCaaY" 
