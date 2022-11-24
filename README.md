@@ -265,4 +265,4 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 
 
 
-[A little somethin before ya go 😏](<iframe width="560" height="315" src="https://www.youtube.com/embed/BBJa32lCaaY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>)
+[A little somethin before ya go 😏](https://www.youtube.com/embed/BBJa32lCaaY)
