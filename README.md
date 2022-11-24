@@ -10,7 +10,7 @@
 
 
 
-> *insert creative greeting*, my real name is [REDACTED] from Grade 9 Lewis, but just call me Khoi. I'm 15 and my birthday is on September 21st, I'm a Virgo Sun, Pisces Rising and Capricorn Moon. I'll say this now, I'm generfluid and have been for some time, so plz respect that and respect others who idenify as the same as well :)). Wanna know more about me? Just check out all the stuff I've put in this ye webpage!!
+> *-insert creative greeting-*, my real name is [REDACTED] from Grade 9 Lewis, but just call me Khoi. I'm 15 and my birthday is on September 21st, I'm a Virgo Sun, Pisces Rising and Capricorn Moon. I'll say this now, I'm generfluid and have been for some time, so plz respect that and respect others who idenify as the same as well :)). Wanna know more about me? Just check out all the stuff I've put in this ye webpage!!
 
 
 
@@ -65,7 +65,7 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 | Adventure Time| Teen Titans Go! & Teen Titans|
 | Arcane| Undertale|
 | Alice in Borderland (the live action adaptation)| Kingdom (the horror kdrama)|
-| Madds Mikkelsen| Nijiro Murakami|
+| Mads Mikkelsen| Nijiro Murakami|
 | Kento Yamazaki| 
 
 
@@ -74,10 +74,10 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 
 |**My favorite artists are:**|
 |------------------------------------|
-| TWICE|  BLACKPINK|
+| TWICE| BLACKPINK|
 | New Jeans| Le SSerafim|
 | STAYC| ITZY| 
-| NMIXX| Billie|
+| NMIXX| TOPHAMHAT-KYO|
 | (G)-IDLE| Ado|
 | TUYU| Mitski|
 | Taylor Swift| Melanie Martinez|
@@ -162,6 +162,8 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6EzZn96uOc9JsVGNRpx06n?utm_source=generator" width="100%" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/7z6qHGEKxRtwtYym2epV7l?utm_source=generator" width="100%" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/76FZM38RC8XaAjJ77CVTNe?utm_source=generator" width="100%" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/3nef5W8jTkXrOKgCu4kmq7?utm_source=generator" width="100%" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
@@ -224,6 +226,15 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/7w2Yi23QmQdiAsix3NkuBD?utm_source=generator" width="100%" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/26EM9sZnQkLLQxixGd88KE?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/2LKOHdMsL0K9KwcPRlJK2v?utm_source=generator" width="100%" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/7cYzdrwzYRZ1qKJLMQaw92?utm_source=generator" width="100%" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
+
+
+
 
 **Before you go, heres some memes that I feel represent me in ways that words cant or whatever, I cant think of anything creative to say here lmao**
 
@@ -250,6 +261,7 @@ If you couldn't tell, my favorite Transformer in the entire series is Soundwave,
 <iframe src="https://assets.pinterest.com/ext/embed.html?id=536702480605663120" height="293" width="345" frameborder="0" scrolling="no" ></iframe>
 
 <iframe src="https://assets.pinterest.com/ext/embed.html?id=536702480605647254" height="295" width="345" frameborder="0" scrolling="no" ></iframe>
+
 
 
 
