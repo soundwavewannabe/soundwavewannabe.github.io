@@ -106,7 +106,7 @@ But I also like Starscream, Schockwave, Megatron, Knockout, Blitzwig, Ratchet, B
 | [Kooleen](https://www.youtube.com/@Kooleen)| [Watcher](https://www.youtube.com/@watcher)|
 | [Bedtime Stories](https://www.youtube.com/@BedtimeStoriesChannel)| [Wendigoon](https://www.youtube.com/@Wendigoon)|
 | [Extra Credits](https://www.youtube.com/@ExtraCredits)| [Don't Hug Me. I'm Scared](https://www.youtube.com/@donthugmeimscared)|
-| [[Sam O'Nella Academy](https://ww.youtube.com/@Sam O'Nella Academy) | [Jake Doubleyoo](https://www.youtube.com/@JakeDoubleyoo)|
+| [Sam O'Nella Academy](https://ww.youtube.com/@Sam O'Nella Academy) | [Jake Doubleyoo](https://www.youtube.com/@JakeDoubleyoo)|
 
 
 
