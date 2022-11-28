@@ -44,7 +44,7 @@
 
 **Transformers:**
 
-If you couldn't tell, my favorite Transformer in the entire series is Soundwave, I wanna be him so bad...he's so cool. ALL HAIL SOUNDWAVE THE CHEIF COMMUNICATIONS OFFICER OF THE DECEPTICONS **RAHHHHHHHH**
+If you couldn't tell, my favorite Transformer in the entire series is Soundwave, I wanna be him so bad...he's so cool. ALL HAIL SOUNDWAVE THE CHEIF COMMUNICATIONS OFFICER OF THE DECEPTICONS **RAHHHHHHHH**.
 But I also like Starscream, Schockwave, Megatron, Knockout, Blitzwig, Ratchet, Bumblebee & Optimus Prime 😃
 
 
@@ -106,7 +106,7 @@ But I also like Starscream, Schockwave, Megatron, Knockout, Blitzwig, Ratchet, B
 | [Kooleen](https://www.youtube.com/@Kooleen)| [Watcher](https://www.youtube.com/@watcher)|
 | [Bedtime Stories](https://www.youtube.com/@BedtimeStoriesChannel)| [Wendigoon](https://www.youtube.com/@Wendigoon)|
 | [Extra Credits](https://www.youtube.com/@ExtraCredits)| [Don't Hug Me. I'm Scared](https://www.youtube.com/@donthugmeimscared)|
-| [SmoughTown](https://www.youtube.com/@SmoughTown)| [Jake Doubleyoo](https://www.youtube.com/@JakeDoubleyoo)|
+| [[Sam O'Nella Academy](https://ww.youtube.com/@Sam O'Nella Academy) | [Jake Doubleyoo](https://www.youtube.com/@JakeDoubleyoo)|
 
 
 
