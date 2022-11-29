@@ -18,8 +18,7 @@
 
 |**Some of my fave animes are:**|
 |-----------------------------------|
-| Vinland Saga| Death Note |
-| Death Note| Violet Evergarden |                       
+| Vinland Saga| Death Note |                    
 | Violet Evergarden| Little With Academia|            
 | Tokyo Revengers| Neon Genesis Evangelion|
 |  Moriarty the Patriot| Higurashi When They Cry| 
