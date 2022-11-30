@@ -24,7 +24,7 @@
 |  Moriarty the Patriot| Higurashi When They Cry| 
 | Spy x Family| Jujutsu Kaisen|
 | Chainsaw Man| Attack on Titan|
-| Wonder Egg Priority| Danganronpa|
+| Wonder Egg Priority| Demon Slayer|
 
 
 
