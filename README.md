@@ -10,7 +10,7 @@
 
 
 
-> *-insert creative greeting-*, my real name is [REDACTED] from Grade 9 Lewis, but just call me Khoi. I'm 15 and my birthday is on September 21st, I'm a ♍Virgo Sun, ♓Pisces Rising and ♑Capricorn Moon. I'll say this now, I'm generfluid🏳️‍⚧️ and have been for some time, so plz respect that and respect others who idenify as the same as well :)). Wanna know more about me? Just check out all the stuff I've put in this ye webpage!!
+> *-insert creative greeting-*, my real name is [REDACTED] from Grade 9 Lewis, but just call me Khoi. I'm 15 and my birthday is on September 21st, I'm a Virgo Sun, Pisces Rising and Capricorn Moon. I'm also an INTJ-T and I'll say this now, I'm generfluid and have been for some time, so plz respect that and respect others who idenify as the same as well. Wanna know more about me? Just check out all the stuff I've put in this ye webpage!!
 
 
 
